@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Fantastical for macOS script with Fantastical for macOS premium Script: collaboration & custom shortcuts. Featuring collaboration and custom shortcuts, it's the
 
 
 
